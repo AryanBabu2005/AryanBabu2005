@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding,AI
 - 🌱 I’m currently learning C,python
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me 
+- 📫 How to reach me email-babuaryan2005@gmail.com  insta-aryanbabu2303
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
 
